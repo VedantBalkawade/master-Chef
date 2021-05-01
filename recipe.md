@@ -1,0 +1,1 @@
+if take two slice on bread and apply pudina chetnuy on one slice and apply tomato ketchup on other slice. then place the sliced pieces of onion,tomato,cucumber and then add some chilly flex and then keep the slice od cheese on it and put some origano on the cheese. place the second slice on it and kepp it on a pan for 1-2 min. and after somr time the sandwich is ready to serve.
